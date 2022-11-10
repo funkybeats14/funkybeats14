@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @funkybeats14
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning different aspects of dentistry..
+- 👀 I’m interested in ...bitcoin and web3 design
+- 🌱 I’m currently learning different aspects of dentistry..as well as coding 
 - 💞️ I’m looking to collaborate on animals against abuse campaign. #Free Myck Mick..
 - 📫 How to reach me willmutht@gmail.com..
 
